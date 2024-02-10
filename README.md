@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @arsikdog
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ... 3
+- 👀 I’m interested in ...InfLang
+- 🌱 I’m currently learning ...?
+- 💞️ I’m looking to collaborate on ... :3
 - 📫 How to reach me ... arsik1034@gmail.com
 
 <!---
